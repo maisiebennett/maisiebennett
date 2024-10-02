@@ -10,6 +10,8 @@ I'm Maisie and I am currently a rplacement student and research assistant at the
 
 📫 How to contact me: 
 
-	[Twitter](https://x.com/maisiebenn90255)
+[Twitter](https://x.com/maisiebenn90255)
+
+	
 
 

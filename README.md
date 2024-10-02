@@ -1,11 +1,15 @@
 ##  About me✨
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+Hello 👋 
+I'm Maisie and I am currently a rplacement student and research assistant at the Reality Bending Lab. I am also a BSc Psychology Student at the University of Sussex. 
+
+🧠 I am interested in Cognitive Psychology. 
+🪴 I am particularly looking forward to learning how to record physiological signals. 
+🎥 In my free time I love watching movies, reading and spending time with friends. 
+
+
+📫 How to reach me: 
+
+(Twitter)https://www.example.com
+
 
